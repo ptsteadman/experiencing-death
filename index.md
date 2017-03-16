@@ -82,3 +82,17 @@ none of what his body so desperately craved.
 Finally, as Ming slid downward into the icy darkness, he felt himself going
 unconscious. He welcomed the escape. All around him in the water Ming saw tiny
 glowing specks of light. It was the most beautiful thing he had ever seen.
+
+The sharks hit instantly. From her front-row seat, Rachel sat frozen in place as
+the spectacle unfolded only a few feet away.  Delta-Two felt the shark’s oblong
+head crash into him with unimaginable force. A razor sharp clamp tightened on
+his upper arm, slicing to the bone and locking on. A flash of white-hot pain
+exploded as the shark torqued its powerful body and shook its head violently,
+tearing Delta-Two’s arm off his body.
+
+Others sharks moved in. Knives stabbing at his legs. Torso. Neck. Delta-Two had
+no breath to scream in agony as the sharks ripped huge chunks of his body away.
+The last thing he saw was a crescent-shaped mouth, tilting sideways, a gorge of
+teeth clamping down across his face.
+
+The world went black.
