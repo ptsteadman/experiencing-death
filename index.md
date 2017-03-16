@@ -110,3 +110,25 @@ before God, he gazed downward into the growing abyss.
 
 His final thoughts were for his daughter, Diana. He prayed she had not known
 fear like this when she died.
+
+Physicist Leonardo Vetra smelled burning flesh, and he knew it was his own. He
+stared up in terror at the dark figure looming over him. "What do you want!"
+
+"_La chiave,_" the raspy voice replied. "The password."
+
+"But... I don't-"
+
+The intruder pressed down again, grinding the white hot object deeper into
+Vetra's chest. There was the hiss of broiling flesh.
+
+Vetra cried out in agony. "There is no password!" He felt himself drifting
+toward unconsciousness.
+
+The figure glared. "_Ne avevo paura._ I was afraid of that."
+
+Vetra fought to keep his senses, but the darkness was closing in. His only
+solace was in knowing his attacker would never obtain what he had come for. A
+moment later, however, the figure produced a blade and brought it to Vetra’s
+face. The blade hovered. Carefully. Surgically.
+
+"For the love of God!" Vetra screamed. But it was too late.
