@@ -44,3 +44,41 @@ him to the door. Numb with fear, Brophy swung his fists, trying to fend off the
 powerful hands pushing him outward.
 
 It was no use. Moments later he was tumbling toward the chasms below.
+
+The fear came on in torrents now.
+
+Drowning, Ming had once read, was the most horrific death imaginable. He had
+never dreamed he would find himself on the verge of experiencing it. His muscles
+refused to cooperate with his mind, and already he was fighting just to keep his
+head above water. His soggy clothing pulled him downward as his numb fingers
+scratched the sides of the pit.
+
+
+His screams were only in his mind now.
+
+And then it happened.
+
+Ming went under. The sheer terror of being conscious of his own impending death
+was something he never imagined he would experience. And yet here he was…sinking
+slowly down the sheer ice wall of a two-hundred-foot-deep hole in the ice.
+Multitudes of thoughts flashed before his eyes. Moments from his childhood. His
+career. He wondered if anyone would find him down here. Or would he simply sink
+to the bottom and freeze there…entombed in the glacier for all time.
+
+Ming's lungs were screaming for oxygen. He held his breath, still trying to kick
+toward the surface. Breathe! He fought the reflex, clamping his insensate lips
+together. Breathe! He tried in vain to swim upward. Breathe! At that instant, in
+a deadly battle of human reflex against reason, Ming’s breathing instinct
+overcame his ability to keep his mouth closed.
+
+Wailee Ming inhaled.
+
+The water crashing into his lungs felt like scalding oil on his sensitive
+pulmonary tissue. He felt like he was burning from the inside out. Cruelly,
+water does not kill immediately. Ming spent seven horrifying seconds inhaling in
+the icy water, each breath more painful than the last, each inhalation offering
+none of what his body so desperately craved.
+
+Finally, as Ming slid downward into the icy darkness, he felt himself going
+unconscious. He welcomed the escape. All around him in the water Ming saw tiny
+glowing specks of light. It was the most beautiful thing he had ever seen.
