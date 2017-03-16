@@ -97,3 +97,16 @@ The last thing he saw was a crescent-shaped mouth, tilting sideways, a gorge of
 teeth clamping down across his face.
 
 The world went black.
+
+I'm dreaming, Pickering thought.
+
+Suddenly, with an explosive hiss that shattered the windows of the Goya's
+bridge, a towering plume of steam erupted skyward out of the vortex. A colossal
+geyser climbed overhead, thundering, its apex disappearing into the darkened
+sky. Instantly, the funnel walls steepened, the perimeter expanding faster now,
+chewing across the ocean toward him. The stern of the Goya swung hard toward the
+expanding cavity. Pickering lost his balance and fell to his knees. Like a child
+before God, he gazed downward into the growing abyss.
+
+His final thoughts were for his daughter, Diana. He prayed she had not known
+fear like this when she died.
