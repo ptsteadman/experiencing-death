@@ -132,3 +132,28 @@ moment later, however, the figure produced a blade and brought it to Vetra’s
 face. The blade hovered. Carefully. Surgically.
 
 "For the love of God!" Vetra screamed. But it was too late.
+
+Only a few feet away, Cardinal Baggia felt his soul straining to leave his body.
+Although he had prepared for this moment his entire life, he had never imagined
+the end would be like this. His physical shell was in agony... burned, bruised,
+and held underwater by an immovable weight. He reminded himself that this
+suffering was nothing compared to what Jesus had endured.
+
+_He died for my sins..._
+
+Baggia could hear the thrashing of a battle raging nearby. He could not bear the
+thought of it. His captor was about to extinguish yet another life... the man
+with kind eyes, the man who had tried to help.
+
+As the pain mounted, Baggia lay on his back and stared up through the water at
+the black sky above him. For a moment he thought he saw stars.
+
+It was time.
+
+Releasing all fear and doubt, Baggia opened his mouth and expelled what he knew
+would be his final breath. He watched his spirit gurgle heavenward in a burst of
+transparent bubbles. Then, reflexively, he gasped. The water poured in like icy
+daggers to his sides. The pain lasted only a few seconds.
+
+Then... peace.
+
